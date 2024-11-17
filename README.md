@@ -4,7 +4,7 @@
 - 💞️ I’m looking not looking for collabration (except with my friends)
 - 📫 Don't reach me if you don't know me
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: I am not innocent as much as I look
+- ⚡ Fun fact: I am not as innocent as I look
 
 <!---
 ShrinjaniSinha/ShrinjaniSinha is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
