@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ShrinjaniSinha
 - 👀 I’m interested in coding, painting, piano and guitar
 - 🌱 I’m currently preparing for JEE
-- 💞️ I’m looking not looking for collabration (except with my friends)
+- 💞️ I’m not looking for collabration (except with my friends)
 - 📫 Don't reach me if you don't know me
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I am not as innocent as I look
